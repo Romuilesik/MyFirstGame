@@ -1,0 +1,1 @@
+just a game. you need to type a letters or numbers. AND...its all...have a nice day!
